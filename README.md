@@ -32,7 +32,7 @@
 love as a collaborative work of art    
 爱是合作一件艺术品    
 它需要    
-efforts,paticence,    
+efforts,patience,    
 compromises,shared goals    
 这样说来 尤其是我    
 在后三个方面做的都不好    
